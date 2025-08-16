@@ -1,5 +1,5 @@
 # 💫 About Me:
-                                A Passionate developer from India<br><br>📫 React out to me at anumangalgatti486@gmail.com
+📫 React out to me at anumangalgatti486@gmail.com
 
 
 ## 🌐 Socials:
